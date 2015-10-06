@@ -22,4 +22,4 @@ Guesting awhile in the rooms of a beautiful inn,
 Glad till the dancing stops, and the lilt of the music ends.  
 Laugh till the game is played; and be you merry, my friends.  
 
-```Source Link: [http://www.public-domain-poetry.com/john-masefield/laugh-and-be-merry-3073](http://www.public-domain-poetry.com/john-masefield/laugh-and-be-merry-3073 "Laugh And Be Merry")```
+Source Link: [http://www.public-domain-poetry.com/john-masefield/laugh-and-be-merry-3073](http://www.public-domain-poetry.com/john-masefield/laugh-and-be-merry-3073 "Laugh And Be Merry")
