@@ -20,6 +20,5 @@ In the dear green earth, the sign of the joy of the Lord.
 Laugh and be merry together, like brothers akin,  
 Guesting awhile in the rooms of a beautiful inn,  
 Glad till the dancing stops, and the lilt of the music ends.  
-Laugh till the game is played; and be you merry, my friends.
----
+Laugh till the game is played; and be you merry, my friends.---
 **Source Link**: [_http://www.public-domain-poetry.com/john-masefield/laugh-and-be-merry-3073_](http://www.public-domain-poetry.com/john-masefield/laugh-and-be-merry-3073 "Laugh And Be Merry")
